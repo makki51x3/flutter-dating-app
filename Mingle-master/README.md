@@ -1,2 +1,2 @@
 #Mingle
-Dating appp
+Dating app
